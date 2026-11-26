@@ -1,0 +1,1 @@
+# judge-laugh-one-line-01
